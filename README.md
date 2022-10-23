@@ -42,6 +42,8 @@
 ![Screenshot 2022-10-23 173838](https://user-images.githubusercontent.com/115562638/197391300-c4457a1e-e5e7-4283-a333-4e5b251e7fba.png)
 
 
+
+
 ### Privacy policy -
 
 
